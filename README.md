@@ -1,1 +1,1 @@
-Theme pictures from 793aba3fef58404faeb3709c8ee57469b6142705
+Theme pictures from c6aaa8b59b67544bd9252da24a8427fe7830d02a
